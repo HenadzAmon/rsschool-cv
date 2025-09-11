@@ -1,1 +1,1 @@
-https://HenadzAmon.github.io/rsschool-cv/cv
+https://HenadzAmon.github.io/rsschool-cv/
